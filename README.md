@@ -1010,7 +1010,6 @@ Official Website- <br>
 https://challenge24.org/](https://www.crio.do/phonepe-tech-scholars-program/?utm_source=linkedin&utm_medium=inmail-r&li_fat_id=11de18f8-f74d-41bd-87a0-b0afa0c49839)
 <br>
 </details>
- 
 
 <details>
 <summary> Content Writing Intern </summary>
@@ -1073,6 +1072,23 @@ https://www.linkedin.com/jobs/view/3300397556/?alternateChannel=search&refId=48r
 <br>
 
 </details>
+ 
+ <hr>
+<details>
+<summary> Adobe Internship 2022 </summary>
+<br>
+About <br>
+Adobe is currently offering Internships for candidates. Internships at Adobe are an excellent way for the students who are pursuing their Graduation and Post Graduation. Also, joining as an Intern in Adobe helps the students to gain real-time experience.<br>
+<br>
+
+Official Website- <br>
+https://www.adobe.com/ <br>
+<br>
+<br> You can find more at - https://www.freshersnow.com/internship-jobs/ <br>
+
+</details>
+
+
  
  
 
